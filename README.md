@@ -1,2 +1,0 @@
-# kamelbenabdelkader.github.io
-cv
